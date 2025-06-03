@@ -1,0 +1,4 @@
+- 👋 Hi, I sou @Geovana1107
+- 👀 I’m interested in learning programming
+- 🌱 I’m currently studying systems analysis and development at university
+- 📫 How to reach me on Instagram: @geovanasouza_11
